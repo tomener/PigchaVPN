@@ -1,4 +1,4 @@
-# vpn PigchaProxy
+# vpn PigchaVPN
 ### 🚀🚀🚀好用、稳定、便宜
 
 **推荐 👉 这个不错，可以按月、按流量、可使用ChatGPT**
